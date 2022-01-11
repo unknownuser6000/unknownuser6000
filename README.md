@@ -1,2 +1,1 @@
-discord: user#6000
-scammer, reseller & cheater
+dm me on discord for fn perm unban (user#6000)
